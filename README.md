@@ -1,1 +1,1 @@
-#Resumen de la practic
+#Resumen de la practica (cambiado)
